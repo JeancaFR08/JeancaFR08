@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **software company.**
 
-- 📫 How to reach me **jeanca.f.r8@gmail.com**
+- 📫 How to reach me **jeanca.f.r8@gmail.com or +506 8606 - 8243**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
