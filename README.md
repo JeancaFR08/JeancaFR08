@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Frameworks and bachelor's certificate.**
 
-- 👯 I’m looking to collaborate on **backend develop.**
+- 👯 I’m looking to collaborate on **software company.**
 
 - 📫 How to reach me **jeanca.f.r8@gmail.com**
 
